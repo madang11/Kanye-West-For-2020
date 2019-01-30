@@ -1,1 +1,0 @@
-# Kanye-West-For-2020
